@@ -1,7 +1,7 @@
 # Zobiya Shaikh
 
 💻 Computer Engineering student | 🌱 Still learning many things | 🚀 Participating in hackathons and exploring more about tech.  
-🎯 Aspiring to work in tech and learn game development and learning the added tech stack.  
+🎯 Aspiring to work in tech |  game development | still learning the added tech stack.  
 📚 Hobbies: Reading, writing, learning new languages, and exploring creative projects.
 
 
